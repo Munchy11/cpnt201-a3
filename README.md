@@ -1,20 +1,7 @@
 # cpnt201-a3
 
-Midsummer, Tobago by Derek Walcott
+## Poem:
 
-Broad sun-stoned beaches.
-
-White heat.
-A green river.
-
-A bridge,
-scorched yellow palms
-
-from the summer-sleeping house
-drowsing through August.
-
-Days I have held,
-days I have lost,
-
-days that outgrow, like daughters,
-my harbouring arms. 
+Pour on lotion, Rub it in. Perfect for my
+On my bike or in the pool, A sip of water keeps me cool.
+Shades are on, flip-flops too. In summer there's so much to do!
